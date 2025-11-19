@@ -4,4 +4,4 @@
 
 Ist umkehrbar, man könnte bisschen kava addieren fixiert vllt besser.
 
-Muslime/-innen hassens,In anderen Ländern können Frauen alleine draussen rumlaufen und denken.
+Muslime/-innen hassens,In anderen Ländern können Frauen alleine draussen rumlaufen und denken ausserhalb von Syrien und Iran. Sogar Türkei hat gecheckt.
