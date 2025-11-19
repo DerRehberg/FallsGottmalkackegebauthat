@@ -5,4 +5,4 @@
 Ist umkehrbar, man könnte bisschen kava addieren fixiert vllt besser.
 
 Muslime/-innen hassens,In anderen Ländern können Frauen alleine draussen rumlaufen und denken ausserhalb von Syrien und Iran. Sogar Türkei hat gecheckt.
-Wir lassen einfach ne geile mit braunen haaren und nicht schwanger gewessenen titten rumlaufen und das rezept an frauen reichen für sich selbst aber, nicht für den mann.
+Wir lassen einfach ne geile mit braunen haaren und nicht schwanger gewessenen titten rumlaufen und das rezept an frauen reichen für sich selbst aber, nicht für den mann, generell weiber wo pupertät eingeschlagen hat.
