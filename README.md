@@ -6,3 +6,6 @@ Ist umkehrbar, man könnte bisschen kava addieren fixiert vllt besser.
 
 Muslime/-innen hassens,In anderen Ländern können Frauen alleine draussen rumlaufen und denken ausserhalb von Syrien und Iran. Sogar Türkei hat gecheckt.
 Wir lassen einfach ne geile mit braunen haaren und nicht schwanger gewessenen titten rumlaufen und das rezept an frauen reichen für sich selbst aber, nicht für den mann, generell weiber wo pupertät eingeschlagen hat.
+
+Für denken starten bei manchen definition des wortes potenzial als algorythmus für den datensatz des lebens zum denken:
+gutmensch = heuchler im bezug arbeitet für unethische menschen bezug logik bilden und/oder taten um andere auszunutzen und zu verarschen bis zum tode was das gegenteils von respekt ist was eigentlich nächstenliebe ist aber respekt klingt asozial  je nach kontext und betonung. Einfach den eigenen Datensatz des gehirns nutzen und sich selber und anderen nichts schlechtes tun. Mainboard altes kann man auch an die Wand nageln wenn der schrotthändler scheiße macht oder lügt.
