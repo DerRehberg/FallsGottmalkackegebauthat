@@ -21,3 +21,6 @@ Christus ist heiler genauso wie seine jünger und erste wiederauferstehung ist g
 Christen wissen, seit anbeginn der Zeit gefühlt:
 
 <img width="817" height="761" alt="image" src="https://github.com/user-attachments/assets/96626c7a-93c1-421f-be6a-a7ba89b4b02a" />
+
+
+<img width="822" height="776" alt="image" src="https://github.com/user-attachments/assets/4d164594-1b54-4e17-8ce6-c5f93c66c688" />
